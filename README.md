@@ -1,2 +1,3 @@
 # LafricaGroup
-Lafrica Group is a diversified group of companies with interests in, ICT, Mining, Energy, Logistics, Agro business and financial investments. 
+Lafrica Group is a diversified group of companies with interests in, ICT, Mining, Energy, Logistics, Agro business and financial investments.
+Lafrica was founded in 2001, the founder identified an opportunity to introduce and augment ICT solutions and training in Zimbabwe and South Africa, paving the way for future success. Lafrica operates through various entities in South Africa, Zimbabwe, Zambia, Mozambique, Mauritius, United Kingdom and Dubai. Lafrica is also known for providing quality services to the mining, agriculture, logistics, industrial and commercial sectors, where they strive to be the company of choice that supports our clients, our people and our communities to grow and prosper. 
